@@ -1,4 +1,4 @@
-# Something-Very-Important/ Что-то очень важное
+# Something-Very-Important / Что-то очень важное
 
 Решила отомстить мужу и горжусь собой.
 
